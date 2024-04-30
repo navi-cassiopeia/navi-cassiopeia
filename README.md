@@ -8,5 +8,6 @@
 
 🤝 Open to networking and connecting with fellow learners and professionals. Let's learn and grow together!
 
-📫 Get in touch with me via email at navikasinha5@gmail.com
+📫 Get in touch with me via Email: navikasinha5@gmail.com
+                            LinkedIn: www.linkedin.com/in/navika-sinha-27b72924a
 
